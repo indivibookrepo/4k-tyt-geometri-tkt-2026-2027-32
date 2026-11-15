@@ -1,0 +1,1 @@
+# 4k-tyt-geometri-tkt-2026-2027-32
